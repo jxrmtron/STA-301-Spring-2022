@@ -17,3 +17,7 @@ https://utexas.zoom.us/rec/share/4wNeUzYIQ5Kwl3cdC6O4WRU8R__hespHzGk4R2oAaQK8Bqu
 02/16/22 - Data Wrangling and Bar Plots
 
 https://utexas.zoom.us/rec/share/jiMH-q1layBhJ2966pGAH6XqAOlNrz0OvCTCLT54GKrXZQYbrH26hEvm8t-HQ8Wv.OdZeE6s1Fyn4CjZZ
+
+02/23/22 - Linear Models and Simulations 
+
+https://utexas.zoom.us/rec/share/32IckR-zn5keQNOPQzoVsDLDmiiB5GZcgGoFxdRGt5ayr45kenhohrInzO4FBYUw.XKPtGOnybKQCW6mY
