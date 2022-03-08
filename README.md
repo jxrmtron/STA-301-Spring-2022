@@ -25,3 +25,7 @@ https://utexas.zoom.us/rec/share/32IckR-zn5keQNOPQzoVsDLDmiiB5GZcgGoFxdRGt5ayr45
 03/02/22 - Bootstraping
 
 https://utexas.zoom.us/rec/play/zigdjUOhNq-gVBp7ppcSMKVo5lwSgnZUkXsswfiYISQGCHEiJzdh3H0d7oC4bbh7JRr6R4JC6Cki8f7a.oxvfsa95NZhAoG2K?continueMode=true
+
+03/07/22 - Midterm Review
+
+https://utexas.zoom.us/rec/share/ZYauAUXhymzXQ0CWAqt0KUFVIIhz4bKgbKVwceINeUHbD6UjHwNcSSbvgtenxmck.nsE_t53s1FeDpssy
