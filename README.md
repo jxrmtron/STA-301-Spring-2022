@@ -29,3 +29,7 @@ https://utexas.zoom.us/rec/play/zigdjUOhNq-gVBp7ppcSMKVo5lwSgnZUkXsswfiYISQGCHEi
 03/07/22 - Midterm Review
 
 https://utexas.zoom.us/rec/share/ZYauAUXhymzXQ0CWAqt0KUFVIIhz4bKgbKVwceINeUHbD6UjHwNcSSbvgtenxmck.nsE_t53s1FeDpssy
+
+03/23/22 - P-Values
+
+https://utexas.zoom.us/rec/share/WYtEth2qIsvHS1DwKKxxOlOHSTbLM1kCUTlSq3M9qhfkqEUgxCde5XSHZFvBbUAJ.0ZSPnppGvIcZ31Rh
