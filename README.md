@@ -33,3 +33,7 @@ https://utexas.zoom.us/rec/share/ZYauAUXhymzXQ0CWAqt0KUFVIIhz4bKgbKVwceINeUHbD6U
 03/23/22 - P-Values
 
 https://utexas.zoom.us/rec/share/WYtEth2qIsvHS1DwKKxxOlOHSTbLM1kCUTlSq3M9qhfkqEUgxCde5XSHZFvBbUAJ.0ZSPnppGvIcZ31Rh
+
+03/30/22 - CLT
+
+https://utexas.zoom.us/rec/share/cNS9RGZ5n7bvCJSyiYRPDxdNQ-Kxv-Imo3ghQBCO2UaurMX5Mie7_TnIXdtDU8ZX.XD6WsHDCIy2ls4mE
