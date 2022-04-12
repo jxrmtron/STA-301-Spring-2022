@@ -37,3 +37,7 @@ https://utexas.zoom.us/rec/share/WYtEth2qIsvHS1DwKKxxOlOHSTbLM1kCUTlSq3M9qhfkqEU
 03/30/22 - CLT
 
 https://utexas.zoom.us/rec/share/cNS9RGZ5n7bvCJSyiYRPDxdNQ-Kxv-Imo3ghQBCO2UaurMX5Mie7_TnIXdtDU8ZX.XD6WsHDCIy2ls4mE
+
+HW3 Explanation
+
+https://utexas.zoom.us/rec/share/LTDWx4gqp7uYHR98p33begYtfrbzihFRsMYQHG_J9vthitydMruhnbU0Oi7wxT4a.cdsKkH7esasrh6Rm
