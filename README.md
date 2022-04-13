@@ -41,3 +41,7 @@ https://utexas.zoom.us/rec/share/cNS9RGZ5n7bvCJSyiYRPDxdNQ-Kxv-Imo3ghQBCO2UaurMX
 HW3 Explanation
 
 https://utexas.zoom.us/rec/share/LTDWx4gqp7uYHR98p33begYtfrbzihFRsMYQHG_J9vthitydMruhnbU0Oi7wxT4a.cdsKkH7esasrh6Rm
+
+04/12/22 - Grouping and Interactions
+
+https://utexas.zoom.us/rec/share/uzFNjX3cfWISgi2yC8JNmnM8UelKauNv5d7yBnSfhkLXr25t-LsaYTIl0IDXNnwA.mETb5bh5DvdyNqqH
