@@ -45,3 +45,7 @@ https://utexas.zoom.us/rec/share/LTDWx4gqp7uYHR98p33begYtfrbzihFRsMYQHG_J9vthity
 04/12/22 - Grouping and Interactions
 
 https://utexas.zoom.us/rec/share/uzFNjX3cfWISgi2yC8JNmnM8UelKauNv5d7yBnSfhkLXr25t-LsaYTIl0IDXNnwA.mETb5bh5DvdyNqqH
+
+04/20/22 - Multiple Regression
+
+https://utexas.zoom.us/rec/share/euqHQwJZDNzF8bMjgN6Gg3QhPw3L6Zv_MH81AUzBV_8UoWr0D4UrtzdcDrC-LiSR.Hq3_E7Eth41gUF9i
